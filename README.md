@@ -5,7 +5,7 @@ With nearly 8 years of experience in IT technical support, I've had the honor of
 - 🎓 In the final stages of completing my Associated Degree in Mobile Application Development
 - 🌱 Continuously learning and exploring new horizons
 - 💞️ Open to collaborations and eager to connect with fellow enthusiasts
-- 📫 You can reach me at ronald.ghub@gmail.com or connect with me on [LinkedIn][(https://www.linkedin.com/in/r-bagaporo-jr/)https://www.linkedin.com/in/r-bagaporo-jr/)
+- 📫 You can reach me at ronald.ghub@gmail.com or connect with me on [LinkedIn][(https://www.linkedin.com/in/r-bagaporo-jr/)https://www.linkedin.com/in/r-bagaporo-jr/)]
 
 
 - #ancoraimparo
