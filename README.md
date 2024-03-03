@@ -9,5 +9,6 @@ With nearly 8 years of experience in IT technical support, I've had the honor of
 - 😄 Pronouns : he / him / his
 - ⚡ Fun fact : don't allow you errors to turn you into someone you are not . . .
 
+![LinkedIn](https://github.com/thecodebuzz/FileSizePOC/blob/master/TheCodebuzz.png?raw=true)
 
 - #ancoraimparo
