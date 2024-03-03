@@ -9,6 +9,6 @@ With nearly 8 years of experience in IT technical support, I've had the honor of
 - 😄 Pronouns : he / him / his
 - ⚡ Fun fact : don't allow you errors to turn you into someone you are not . . .
 
-
+📫 You can reach me at ronald.ghub@gmail.com or connect with me on [LinkedIn](https://www.linkedin.com/in/r-bagaporo-jr/)
 
 - #ancoraimparo
