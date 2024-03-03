@@ -10,4 +10,4 @@ With nearly 8 years of experience in IT technical support, I've had the honor of
 - ⚡ Fun fact : don't allow you errors to turn you into someone you are not . . .
 
 
-- #ancoraimparo
+#ancoraimparo
